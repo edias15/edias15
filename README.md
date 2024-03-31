@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @edias15 (Emerson Dias)
 - 👀 I’m interested in technology and marketing.
-- 🌱 I’m currently learning marketing.
-- 💞️ I’m looking to collaborate on smart projects.
+- 🌱 I’m marketing professional.
+- 💞️ I love new projects.
 - 📫 How to reach me on (55) 41 98745-6383 or emerson15dias@gmail.com
 
 <!---
